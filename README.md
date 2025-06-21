@@ -8,4 +8,4 @@ p.s. on a slightly older video I made a video on how to get it running on youtub
 if your on discord you can find me at: alex_88461
 mql5: https://www.mql5.com/en/users/amcphie
 youtube: https://www.youtube.com/@cheddarbob8741
-facebook: https://www.facebook.com/alex.mcphie.58/
+
